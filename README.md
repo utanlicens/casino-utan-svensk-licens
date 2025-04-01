@@ -5,9 +5,9 @@
   Tack vare säkra system kan du njuta av både sportspel och casinospel i en trygg miljö. <br>
   Genom att använda de senaste inloggningsadresserna kan spelare smidigt få tillgång till sina favoritplattformar och maximera sina vinster. 💸</p>
 
-## [🔗 Gå till Casino Utan Svensk Licens!](https://seobullrun.net/click.php?key=boh9jdtfo84wpl0imd6v)
+## [🔗 Gå till Casino Utan Svensk Licens!](https://jpjago.com/click.php?key=boh9jdtfo84wpl0imd6v)
 
-[![Gå till Casino Utan Svensk Licens](https://raw.githubusercontent.com/utanlicens/casino-utan-svensk-licens/refs/heads/main/utan-svensk-licens.png)](https://seobullrun.net/click.php?key=boh9jdtfo84wpl0imd6v) 
+[![Gå till Casino Utan Svensk Licens](https://raw.githubusercontent.com/utanlicens/casino-utan-svensk-licens/refs/heads/main/utan-svensk-licens.png)](https://jpjago.com/click.php?key=boh9jdtfo84wpl0imd6v) 
 
 ## Få bonusar med Casino Utan Svensk Licens!
 ### 🔥 Spel och betting utan begränsningar! 🔥
@@ -26,4 +26,4 @@
 <p>Spelsajter utan svensk licens lockar allt fler användare och stärker sin position på marknaden. 🌟 <br>
   Upptäck spänningen och vinsterna med casino och betting utan begränsningar – håll koll på aktuella inloggningslänkar och njut av spelet!</p>
 
-## [🔗 Gå till Casino Utan Svensk Licens!](https://seobullrun.net/click.php?key=boh9jdtfo84wpl0imd6v)
+## [🔗 Gå till Casino Utan Svensk Licens!](https://jpjago.com/click.php?key=boh9jdtfo84wpl0imd6v)
